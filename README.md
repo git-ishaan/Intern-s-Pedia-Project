@@ -1,1 +1,1 @@
-# Intern's-Pedia-Project
+# I-ntern's-Pedia-Project
