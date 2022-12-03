@@ -1,1 +1,1 @@
-# I-ntern's-Pedia-Project
+# I-n-tern's-Pedia-Project
