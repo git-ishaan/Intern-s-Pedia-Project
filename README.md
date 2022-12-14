@@ -1,1 +1,1 @@
-#I-n-t-ern's-Pedia-Project
+#I-n-tern's-Pedia-Project
