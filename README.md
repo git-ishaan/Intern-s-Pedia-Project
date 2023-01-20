@@ -5,6 +5,4 @@ lmd
 kjbxjha
 
 erjjhb hjbh
-n kjasbc
-kjbsndckj
-jhvh
+n kjas
