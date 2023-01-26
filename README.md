@@ -1,5 +1,1 @@
-#I-ntern's-Pedia-Projectkjdsnc
-
-
-bevj
-jhb
+Internspedia Project
