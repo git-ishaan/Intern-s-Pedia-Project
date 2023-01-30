@@ -1,3 +1,2 @@
 Internspedia Project
 s
-j 
