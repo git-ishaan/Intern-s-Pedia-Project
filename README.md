@@ -1,4 +1,2 @@
 Internspedia Project
-shjbhjfdradr vhbjm,
-
-akbsdkjwnd
+shjbhjfdradr 
