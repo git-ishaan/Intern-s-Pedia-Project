@@ -1,2 +1,2 @@
-Internspedia Project
+Internspedia Projects
 
