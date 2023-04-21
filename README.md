@@ -4,6 +4,5 @@ askjd
 ekjf
 dkjfbc
 hjb
-n fs
-loda pedia
+nk  n
 ascc
