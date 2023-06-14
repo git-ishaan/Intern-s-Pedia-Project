@@ -1,6 +1,2 @@
 bvb
-njb 
-fgtreg
-dcd
-dcdcd
-hjbhj
+nn j h hnh
